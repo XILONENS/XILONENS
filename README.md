@@ -7,7 +7,7 @@
 <div id="header" align="center">
   <img src="https://64.media.tumblr.com/5e6ca949fe4fd779db76798f92d914c0/705e39b75584866f-c2/s400x600/10cb6f723a2ac4e6d0524292f6b3bb6d599e1dc0.jpg" width="1000"/>
 </div>
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤY𝐚𝐰n..
+ㅤㅤㅤㅤㅤ🐾ㅤㅤㅤY𝐚𝐰n..ㅤㅤㅤ۫ㅤ⋆ ׂ 
 <div id="header" align="center">
   <img src="https://64.media.tumblr.com/c2fe091ea24bf9e16f3b5747bbe9f4d9/705e39b75584866f-c5/s1280x1920/baf5d3d1a38688453287ee494ec4c02a9b4673af.pnj" width="1000"/>
 ﹒࿙࿚ ִ I𝐬 I𝙩 T𝗵𝗮t Tim𝗲 𝗢f Y𝗲𝗮r A𝗴𝗮𝗶n?﹒࿙࿚ ִ 
